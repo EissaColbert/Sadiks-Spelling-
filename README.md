@@ -1,2 +1,0 @@
-# Sadiks-Spelling-
-video
